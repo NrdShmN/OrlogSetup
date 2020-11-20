@@ -22,3 +22,11 @@ Papercutter
 I wasn't able to find any square coins or any strong evidence of the squared loop being related to viking culture, so I went with fantasy coins with swords and shields as well as dragon as they were affordable and thematic. 
 
 I created the cards for the God favors specifically to maintain the flow of the game structure. Just like in AC:V, players must choose their god favors before the action phase begins. To do this, at the beginning of each turn, players pick up their God cards. Then, at the end of the rolling phase, players place their Gods facedown rotated so that the selected god action is closest to their opponent or on the God's name if no action selected. Favors that affect dice rolls are revealed at the beginning of the action phase, and all other cards are revealed at the end of the action phase unless the favor requires otherwise. 
+
+# Instructions
+..*Download and print the dice inserts onto the sticker paper. For best results, print them directly from MS Paint.
+..*Using the paper cutter (or scissors) cut the dice inserts out in horizontal strips so you end up with one strip of each type of face.
+..*Cut out 6 faces at a time making sure to include 1 God favor face; peel and stick them to the dice. Each printout has enough faces to cover 15 dice.
+..*Download and print the God cards. The four here are formatted on a word doc as well as in individual .PNG format. Cut them at as you please.
+..*If you ordered only one dice tray, you can use cardstock paper to make a sturdy divide and cut it so it sits nicely between two corners of the tray
+..*Time to play some ORlOG!!
