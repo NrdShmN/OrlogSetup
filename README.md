@@ -29,4 +29,4 @@ I created the cards for the God favors specifically to maintain the flow of the 
 ..*Cut out 6 faces at a time making sure to include 1 God favor face; peel and stick them to the dice. Each printout has enough faces to cover 15 dice.
 ..*Download and print the God cards. The four here are formatted on a word doc as well as in individual .PNG format. Cut them at as you please.
 ..*If you ordered only one dice tray, you can use cardstock paper to make a sturdy divide and cut it so it sits nicely between two corners of the tray
-..*Time to play some ORlOG!!
+..*Time to play some ORLOG!!
