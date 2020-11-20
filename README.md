@@ -32,6 +32,8 @@ I created the cards for the God favors specifically to maintain the flow of the 
 
 4. Download and print the God cards. The four here are formatted on a word doc as well as in individual .PNG format. Cut them at as you please.
 
-5. If you ordered only one dice tray, you can use cardstock paper to make a sturdy divide and cut it so it sits nicely between two corners of the tray
+5. If you ordered only one dice tray, you can use cardstock paper to make a sturdy divide and cut it so it sits nicely between two corners of the tray.
 
-6. Time to play some ORLOG!!
+6. If you ordered only 1 set of coins, you can have one side represent 1 god favor and the other side represent 5 god favor. This method can represent up to 13 god favor, and you can increase this by altering the values based on whether the coins are stacked on top of each other to represent up to 21 pretty clearly. 
+
+7. Time to play some ORLOG!!
